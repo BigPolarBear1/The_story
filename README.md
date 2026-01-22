@@ -28,4 +28,4 @@ There was a lot of trauma, and I still struggle with it. I think I have some typ
 
 Ps: And yea I do regret some of the things I said in fits of anger in the months after I was threatened with a gun and literally having my entire world destroyed. There is some lines that should never be crossed, even in anger. But I dont regret any of the anger I expressed toward microsoft, the people who went after my former manager and infosec as an industry. Bunch of losers. Quit your job losers, you all suck. 
 
-
+Btw. Fuck pete hegseth. Loser. And fuck all the other warmongers who destroy innocent lifes. All I see in the world lately is endless suffering by people who have never committed a crime. This world is ruled by apes with half a brain. And I'm tired of it. The world could have been wondrous, a pursuit of art, science and spirituality, yet here we are, nothing but fucking apes bashing eachothers heads in. Fuck you all pussy cowards. Come fight me cunts. I'll destroy you all then.
